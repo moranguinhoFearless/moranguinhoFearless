@@ -11,3 +11,4 @@ Você entrar em contato comigo 📫
 andryele.souza@escola.pr.gov.br
 
 ![](https://tenor.com/pt-BR/view/taylor-swift-taylorswift-gif-20340077)
+![](https://tenor.com/pt-BR/view/stan-twitter-thisisalecx-taylor-swift-gif-22772939)
