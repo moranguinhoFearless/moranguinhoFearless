@@ -11,4 +11,4 @@ Você pode entrar em contato comigo 📫
 andryele.souza@escola.pr.gov.br
 
 
-![](https://media.tenor.com/ldLCLl4SWyIAAAAM/taylor-swift.gif)                                                       ![](https://media.tenor.com/g3gOBuyX9vUAAAAM/taylor-swift-naur.gif)
+![](https://media.tenor.com/ldLCLl4SWyIAAAAM/taylor-swift.gif)                      
